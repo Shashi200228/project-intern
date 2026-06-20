@@ -4,9 +4,9 @@
 
 Shashi Samala
 
-## GitHub Repository
+## Video Link
 
-https://github.com/Shashi200228
+https://drive.google.com/file/d/1ya1FyYB_smXR3pfiNsJUyOkyqy8Xq9l0/view?usp=drivesdk
 
 ## Project Overview
 
